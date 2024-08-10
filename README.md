@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @V4K4RUL
-- 👀 I’m interested in coding and gaming optimization and just generally play it.
+- 👀 I’m interested in coding and optimization.
 - 🌱 I’m currently learning secret stuff
 - 😄 Pronouns: he/him
 <a href="https://visitcount.itsvg.in">
